@@ -206,7 +206,7 @@ results from multifaceted specialized expertise. And during these episodes of
 mixing together, there is occasional foreign skilled labor that enters into the 
 Western nation, doing some work in some archaic foreign way, publicly announcing 
 their work, and then either settling down in the Western nation via sponsorship 
-of corporate wealth, leaving the Western nation, or getting deported. There 
+from corporate wealth, leaving the Western nation, or getting deported. There 
 are lines drawn for the industrial work, services economy, and manufacturing 
 bases. Going back to the question of "where do we draw the line?" for A.I., it 
 seems in the haste of some futurists and policy-makers, they completely forget 
