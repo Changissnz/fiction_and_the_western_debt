@@ -108,7 +108,7 @@ neutrality through contained contradiction. And there they remain for their
 foreseeable future until epiphany through experience guides their belief towards 
 a side of the whole. The line also attracts the interests of those characters 
 under that which has come to be called Machiavellian. The line, in practice, 
-is drawn by the human mind. And the reasoning for that can be conveniently be 
+is drawn by the human mind. And the reasoning for that can conveniently be 
 phrased as due to "a combination of factors". Popular concepts in orthodoxy are 
 the state, the family, the collective, the community, and the individual. And 
 statistics on paper and imagined by the human mind usually arrive at summaries, 
