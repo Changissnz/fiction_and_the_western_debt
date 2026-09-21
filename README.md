@@ -65,7 +65,9 @@ interacts with the environment, is fed by the pretenses and responses of society
 at large, and modifies its metaphysical form in ways that preserve the symbiotic 
 bond with its host human being. It is ultimately the experience that educates, 
 and the chosen stubbornness of the mind to remember that from education. In 
-short, though, 
+short, though, the performance is separate from the true experience, although 
+both being made in at least non-zero degree of choice are equivalently out of 
+situated choice. 
 
 The problem with language is of two primary parts, occasionally in practice 
 being only of one part. The first is of the institutional authority behind it, 
