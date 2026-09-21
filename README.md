@@ -158,7 +158,7 @@ not also devious nature by which some Muslims take to establish themselves in
 Western society, and a secretively shunning and dismissive attitude for 
 Europeanist sanctimony. The dynamic of these two demographics, especially when 
 identity becomes placed at the forefront of consideration, produces this sense 
-of misplaced antagonism at the surface, before there is greater observation of 
+of misplaced antagonism at the surface, before there is greater observance of 
 politics, finance, labor, and other factors. There are also doubts on the 
 sincerity of connection, due in part to mercantilism and the dealings of 
 Western elites with their Muslim counterparts. The two identities pride 
