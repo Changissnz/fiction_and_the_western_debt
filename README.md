@@ -144,8 +144,8 @@ by the competing spheres of influence accommodates through growing itself.
 One area of Western peculiarity is on accommodations during changing commercial 
 climates. For example, there is marriage to the Muslim cousin and the Indian 
 affiliate's entrance into establishment politics. War and commerce are the 
-culprits. The phenomena produce an almost equal exchange of life taken in 
-war of a foreign land and foreign life entering the home land, an exorbitant 
+culprits. The phenomena produce an almost equal exchange of life taken of 
+war in a foreign land and foreign life entering the home land, an exorbitant 
 amount of goods from a foreign land stipulating that foreigners must be 
 welcomed along with the transport. This is merely a cliched enumeration, as 
 if to signify a force of equality that operates without any will from mankind, 
