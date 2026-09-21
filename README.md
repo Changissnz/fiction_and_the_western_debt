@@ -200,7 +200,7 @@ crafted for the expectations of society at large, and of course, the
 accommodating degrees of cynicism and disbelief, sometimes outright abandonment 
 of the duties of participating in civic life. This characterization is obviously 
 fixated on the races, the ethnic identities, that somehow can have freedom but 
-also fall in line with practices adapted for their own identities to the times, 
+also must fall in line with practices adapted for their own identities to the times, 
 and the times are supposed to be pluralistic to be fair, as per the calculus 
 results from multifaceted specialized expertise. And during these episodes of 
 mixing together, there is occasional foreign skilled labor that enters into the 
