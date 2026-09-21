@@ -37,7 +37,7 @@ Reasons are plenty and can also be contrived for why the West, at least in the
 English language, would not refer to itself as the Orient. And for that, there 
 is at least the sentiment that satisfaction of control cannot be found in 
 reigning over society and the people, but in knowing the "natural" order of 
-things bound to be free from duty, as the sun rises in the east and sets in the 
+things bound to be free from duty. As the sun rises in the east and sets in the 
 west, the West in imagination is not always of the rugged frontier, depravity and 
 debaunchery, but in an escapade from the confines of indigenity, structuralized 
 culture, Byzantine in design, and Oriental in display of order. But on this 
