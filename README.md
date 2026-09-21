@@ -114,8 +114,8 @@ the state, the family, the collective, the community, and the individual. And
 statistics on paper and imagined by the human mind usually arrive at summaries, 
 so that even in times of doubt on these lines, there is restraint justified as 
 moral and discrimination imagined to be rational, when in fact, the most 
-rational aspect would be the tough challenge of collecting, verifying, and 
-reproducing those statistics. The specifics from individuation become viewed 
+rational aspect would be acknowledging the tough challenge of collecting, verifying, 
+and reproducing those statistics. The specifics from individuation become viewed 
 as aberrant and even threatening when those specifics are placed under 
 reactionary dynamics. 
 
