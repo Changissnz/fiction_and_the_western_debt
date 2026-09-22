@@ -188,7 +188,7 @@ process, the language reinforces. It reassures. It is closure only if the
 human mind believes it to be. 
 
 A concern of concerns within the West, especially in the United States, has to 
-do with the law. This fact might have, until recent years, be most attributed 
+do with the law. This fact might have, until recent years, been most attributed 
 to those of Anglo-Saxon and/or Jewish identity. The arrangement of law 
 enforcement of Anglo-Saxon descent and Jewish lawyer must, in many areas of 
 the West, be more frequent than not. And these troubles are further complicated
